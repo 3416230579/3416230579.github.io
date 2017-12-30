@@ -1,2 +1,0 @@
-# 3416230579.github.io
-PERSONAL PAGE
